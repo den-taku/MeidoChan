@@ -1,2 +1,2 @@
 # MeidoChan
-Human beings must see "Sakurasou no Pet na Kanojo" !
+Human beings must watch "Sakurasou no Pet na Kanojo" !
